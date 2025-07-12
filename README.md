@@ -10,6 +10,9 @@
 
 **“Actively learning new skills and technologies to stay updated with industry trends. Developing projects to apply knowledge in real-world scenarios. Committed to self-improvement and adaptability in a rapidly evolving world.”**
 
+>  In today’s world, knowledge of artificial intelligence is crucial. If you’re not well-versed in AI itself, you should at least understand enough to be able to direct and control AI to perform tasks for you.<br> *-- Anas*
+
+
 <br>
 
 # 🌐 Socials:
